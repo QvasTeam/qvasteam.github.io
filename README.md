@@ -1,1 +1,0 @@
-# qvasteam.github.io
